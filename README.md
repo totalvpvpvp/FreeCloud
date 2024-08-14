@@ -8,7 +8,7 @@ FreeCloud机场，老牌纯公益，Free✈️免费机场旗下付费站分站�
 
 4k秒开，全隧道中转线路，最高1.5倍，最低0.1倍香港等。
 
-主流流媒体全劫持解锁，Netfilx/Hulu/Hbo/Disney+/Dazn/GPT/Tiktok等流媒体。群内自带miaoko节点监控1和1111服务器探针，用户用得更放心更安心。
+主流流媒体全劫持解锁，Netfilx/Hulu/Hbo/Disney+/Dazn/GPT/Tiktok等流媒体。群内自带miaoko节点监控1和11111服务器探针，用户用得更放心更安心。
 
 ## FreeCloud优惠码
 
